@@ -3,7 +3,7 @@
 Set of recipes as given by my grandma.
 
 
-# Perez's Family secret recipes
+# Perez's Clan  secret recipes
 
 Set of recipes as given by my grandma.
 
